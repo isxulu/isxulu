@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about you.
 - 💞️ I’m looking to collaborate on fantasy.
 - 📫 How to reach me ...
-- reach me at 13967854995@163.com or through your heart.
+- Through your heart.
 - Goodnight :)
 
 <!---
