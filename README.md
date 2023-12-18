@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about you.
 - 💞️ I’m looking to collaborate on fantasy.
 - 📫 How to reach me ...
-- no way
+- Twitter @ulululululuxu
 - Goodnight :)
 
 <!---
